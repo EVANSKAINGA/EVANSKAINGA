@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @EVANSKAINGA
+- 👋 Hi, I’m Evans Kainga
 - 👀 I’m interested in Stock Market, Blockchange technology, Programming, Coding and deeply into computer systems.
 - 🌱 I’m currently a student in computer engineering and android developing committee.
 - 💞️ I’m looking to collaborate with anyone or any firm interested in my key areas of specialization.
